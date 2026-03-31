@@ -1,4 +1,4 @@
-
+Why pay for scripts when you can get jujutsu infinite new Scripts Free: spd & tele for free? Experience the thrill of jujutsu infinite with spd and tele, all at no cost to you. Safe, effective, and always up-to-date, jujutsu infinite new Scripts Free: spd & tele is the ultimate gaming companion.
 
 
 ---
